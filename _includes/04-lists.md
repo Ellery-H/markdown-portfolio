@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. Hi dude!
+2. 🚡
+   1. 🎄
+   2. Bye! 
